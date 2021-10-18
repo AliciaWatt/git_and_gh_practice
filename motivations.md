@@ -1,0 +1,1 @@
+The motivation behind learning this new skillset is the opportunity to work in various industries. The potential of working on applications that could impact many lives in a positive way is especially motivating.   
